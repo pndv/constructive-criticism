@@ -1,0 +1,4 @@
+baseURL = "https://constructivecriticism.in/"
+languageCode = "en"
+title = "Constructive Criticism"
+theme = ["github.com/theNewDynamic/gohugo-theme-ananke"]
