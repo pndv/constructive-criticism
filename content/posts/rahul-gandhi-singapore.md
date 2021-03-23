@@ -1,3 +1,10 @@
+---
+title: " What Rahul Gandhi should have said in response to the professor’s question in Singapore…"
+date: 2021-03-22T22:16:16-08:00
+draft: false
+author: "Vinay Pandey"
+---
+
 # What Rahul Gandhi should have said in response to the professor’s question in Singapore…
 I saw [this exchange on YouTube](https://youtu.be/VFM6m41LUMM?t=6) and cringed at Mr. Gandhi’s reply. The professor, besides using the platform to shamelessly promote his book also accused Mr. Gandhi’s family for the abysmal performance of Indian economy after independence. Here is how I would have replied to his comments:
 
