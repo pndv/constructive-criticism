@@ -1,0 +1,16 @@
+---
+title: "Punching of lawmakers in Bihar assembly is not be surprised"
+date: 2021-03-27T11:44:54-07:00
+draft: false
+author: "Parmanand Pandey"
+---
+
+The fracas and mayhem that was witnessed on 24th March 2021 in the Bihar assembly at the time of the introduction of the Bihar Special Armed Police Bill might be shocking to some touchy and thin-skinned people, but it hardly surprises to those who have watched the blood spluttering maarpeet of MLAs in the UP assembly, when the hypocrite Samajvadi Mulayam Singh Yadav was the Chief Minister. The assembly became a battlefield for the lawmakers in the third week of December 1993 before the Christmas break. Microphones were broken and used as missiles and sticks to beat the lawmakers belonging to the opposition.
+
+Punching and pummelling among the lawmakers have become very frequent in some assemblies. Again, on the second of June 1995, when Mayawati had withdrawn her support to Mulayam Singh Yadav’s government, which was enough for the Samajwadi goonda MLAs to express their anger on the lady. They locked her in a room of the Guest House at Lucknow, had beaten her mercilessly, torn her clothes and were about to rape her. Thankfully, she was saved by the late Brahma Dutta Dwivedi, a BJP leader. Two MLA brothers of my home district Azamgarh used to gleefully narrate the stories of their bravery in assaulting Mayawati. See the irony they were later accommodated in the Mayawati's Party. One brother has gone back to his original Samajwadi Party, the other one is in the BJP but he may switch to any other party if the ticket is denied to him.  
+
+It is common knowledge that in Uttar Pradesh and Bihar the essential qualification of the ticket seekers in some of the parties is to be hard-core criminals. The bigger the criminal, the more are the chances of getting the tickets and winning the elections. While Mulayam Singh Yadav proved to be unparalleled in promoting the goondas in politics, Mayawati did not lag behind in mixing the muscle-power with corruption and money. Both used the democratic forum to molest and mutilate it. Lau Prasad Yadav in Bihar made the heady mix of corruption, casteism and goondaism to inculcate his own brand of industry and socialism. His illiterate son, now the opposition leader, is dutifully perpetuating it.
+
+A question arises that how one can expect decent lawmakers when the anti-social elements having winnability are getting the tickets ignoring gentle and educated persons with the desire the people. There is a saying that ‘boya ped babool ka to aam kahan se khay’ (as you sow, so you reap). The constitution is mocked at every stage by the political leadership. When a dacoit, a rapist, an extortionist, a murderer becomes an MP, MLA or Minister how can one expect them to behave as a sensible lawmaker? Then there is nothing surprising in finding the bedraggled lawmakers with bloody faces. Uproarious scenes have been common in Parliament but in the last session of the Rajya Sabha, some members resorted to the bludgeoning of Marshals and punching of their own colleagues.
+
+It is time when all sections of society considered for the saving of democracy from thieves, dacoits, frauds, and corrupt elements otherwise, the precincts of Parliament and assemblies will drive the nails to kill it.
