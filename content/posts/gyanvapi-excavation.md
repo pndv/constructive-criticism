@@ -1,0 +1,15 @@
+---
+title: "Excavation of Gyanvapi will unearth reality: a Welcome Order"
+date: 2021-04-16T22:11:09-07:00
+author: "Parmanand Pandey"
+draft: false
+---
+Think for a moment that if Rakhal Das Banerji and John Marshall of Archaeological Survey of India had not undertaken the excavations of Harappa in 1922, would it have been possible for the whole world to know about Mohenjo-Daro and the Indus Valley Civilisation that existed thousands of years ago? The world would have remained poorer about the ancient Indian civilisation. So, there is no logic in opposing the excavation with the help of modern technology to know the factual position of the Gyanvapi mosque, which has been ordered by Asutosh Tiwari, the Senior Fast-Track Court Civil Judge of Varanasi on April 8
+
+The Judge directed the Archaeological Survey of India to conduct a physical survey of the Gyanvapi mosque compound abutting the Kashi Vishwanath temple to find out whether it was a 'superimposition, alteration or addition or there is structural overlapping of any kind, with or over, any other religious structure'.  In his order, he also asked the committee to be constituted for the purpose, to trace as to whether any Hindu temple ever existed before the mosque in question. The civil Judge said that a committee formed by the ASI as per its directions would be entitled to enter every portion of the religious structure situated at the disputed site but shall first resort to only Ground Penetrating Radar or Geo-Radiology System or both to satisfy itself on whether any excavation or extraction work is needed at any portion of the religious structure. If excavation or extraction was to be done at any portion of the structure, it should be first done by trial trench method vertically and that too on a very small scale and not more than four square feet at a time.
+
+Unfortunately, the Uttar Pradesh Sunni Central Waqf Board has, without losing any time, approached the Allahabad High Court to set aside the order of the Varanasi judge.  This order has stirred and shaken the Muslim community. One fails to understand why the Muslims in India, whose DNA is the same as those of Hindus and other religionists do not want to know the historical reality?
+
+It is so strange that when the world wants to know the origin of the human race and Neanderthals or when the scientists across the globe are vying with others to send their spacecraft on the Moon and Mars, we do not want to know our history of even a few hundred years. Needless to mention that the love and affection cannot grow in darkness and ignorance, but it grows in the light when the knowledge dawns.
+
+Hopefully, Allahabad High Court will not adopt the myopic view and will allow the excavation to be carried on to know the reality.  Any attempt to put the lid on the truth must be deprecated. Those who want to stop the excavation work are the enemies of knowledge and truth but unfortunately, a section of the society in our country unabashedly tries to stop it in the name of bogus communal harmony.
