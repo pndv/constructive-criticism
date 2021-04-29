@@ -1,0 +1,18 @@
+---
+title: "Agartala DM needs psychiatric treatment"
+date: 2021-04-29T13:31:27-07:00
+draft: true
+author: "Parmanand Pandey"
+---
+
+Agartala District Magistrate Shailesh Kumar Yadav deserves to be pitied and needs to be sent to a mental asylum. What he has done, on the night of the day before yesterday, to spoil the joyous wedding celebrations at two places can be done only by an insane person and not by the one who is in his or her senses. To say that it was unbecoming on the part of an IAS officer is a gross understatement. Firstly, it was difficult to believe that any official could behave in such a vulgar manner. He along with his team and policemen behaved like a third-rate goonda. The people could have retaliated to bring him to senses, but the occasion of the marriage seemed to have kept them on hold.
+
+The video of the Agartala DM has now become viral worldwide. Everybody is aghast to see an IAS officer slapping and abusing people including the priest, the groom, and the bride, like a constable handling an unruly crowd. Needless to say, that most of the government employees, right from the IAS officer down to a _chaprasi_ are essentially corrupt. Corruption has become the hallmark of the government job. The police department is the synonym of corruption in India. Engineers and Doctors do not lag behind them. Contractors, in different departments belong to the despicable new breed of infection, who are the past masters of evil deeds.
+
+Most of the IAS and IPS officers are found to be corrupt, haughty, drunk with power, reckless, and generally ride roughshod but some of them are also found to be very conscientious with impeccable perspicacity and integrity. This corrupt breed grins before the powerful politicians but misbehave with the general public. Therefore, even if they are power-drunk, they become very meek in front of their masters. Some of them, who try to show themselves to be courageous, often behave abnormally for cheap publicity.
+
+As a matter of fact, the selection, the training, and the orientation programmes of these officers must be drastically changed. They must be firmly told and professionally trained that they are meant for the service of the people and not to overlord them. Otherwise, how come an IAS or IPS considers himself or herself to be many shades above the Aam Adami and has got the license to accumulate the ill-gotten wealth?
+
+Rooting out the corruption is an uphill task, and it can be done only by the dedicated band of political leadership with the help of technology by bringing the human interface to the minimum level. Seeing by the conduct of the officers in different departments it appears to be imperative to go for their psychological tests and if they are as mentally derailed as this Shailesh Kumar Yadav is, then they should be rendered proper mental treatment or even their services can be dispensed with.
+
+The people must also be aware of the fact that this the time of the pandemic and any violation of the Standard Operating Procedures will be detrimental not only for them but for others as well. Therefore, its violation should not be brooked but in the case of the Agartala incident, the police should firstly have not allowed the number of people to have gone up more than fifty and secondly, the proper warning must have been given to vacate the place by a certain time. Of course, some concession could have been given to four or five persons to solemnise the marriage ceremony. However, there is no point in now crying over the spilt milk or suggesting what should have been done or not done. Hopefully, this incident, howsoever condemnable it is, should serve as a lesson to the officials, leaders, and the public as well.
