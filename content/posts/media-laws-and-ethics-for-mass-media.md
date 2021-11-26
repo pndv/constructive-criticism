@@ -1,6 +1,8 @@
 ---
 title: "Media Laws and Ethics for Mass Media"
-date: 2021-11-25T19:43:23-08:00 draft: true
+date: 2021-05-25T19:43:23-08:00 
+author: "Parmanand Pandey"
+draft: false
 ---
 
 Have a thought ever come to your mind that why, at all, the laws are needed? Why should human being remain bound by
